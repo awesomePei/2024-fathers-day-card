@@ -1,1 +1,1 @@
-simple birthday card for mom
+simple father's card for dad
